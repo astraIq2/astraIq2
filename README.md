@@ -1,16 +1,26 @@
-## Hi there 👋
+#### <p align="center"> ＞ " ꜱɪʟᴀꜱ ᴡᴇ'ʀᴇ ɢᴏᴏᴅ ꜰʀɪᴇɴᴅꜱ , ᴀʀᴇ ᴡᴇ ɴᴏᴛ.. ? ,, ＜ </p>
 
-<!--
-**astraIq2/astraIq2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=your-github-sugilites&label=Passengers&color=9b7551&style=plastic&abbreviated=true&base=21000">
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+  <img src="https://github.com/sugilites/sugilites/blob/main/TESTING%20BACKGROUND.png" />
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+</p>
+
+<div align="center">
+
+[𝐀𝐓𝐀𝐁𝐎𝐎𝐊](https://azur.atabook.org/)　//　[𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘](https://planted.straw.page/)　//　[𝗣𝗥𝗢𝗡𝗢𝗨𝗡𝗦](https://pronouns.cc/@azur)
+
+</div>
+
+
+<p align="center"> 𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗 <a>
+
+
+###### <p align="center"> ᴛʜᴇ ᴇɴɢɪɴᴇᴇʀ </p>
+
+
+<p align="center"> 𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗𝄗 <a>
